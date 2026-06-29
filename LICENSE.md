@@ -1,4 +1,4 @@
-
+Get the ultimate IPVanish client with IPVanish elite Client: auto-connect & end-to-end-encryption. Featuring auto-connect and end-to-end-encryption, it's the best choice for
 
 
 
